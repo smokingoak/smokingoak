@@ -1,0 +1,2 @@
+- 🖤 bonjour, i'm oakley 🇪🇬
+- 🩶 i speak 🇬🇧 + some 🇪🇸 (learning 🇸🇦 + 🇸🇪)
